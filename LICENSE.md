@@ -1,4 +1,4 @@
-# 
+# new Affinity Photo PC版 扩展 是最佳 Affinity Photo PC版 扩展，集成 实时预览 和 灯光。安全、可靠、优化，性能最大化。
 
 
 
